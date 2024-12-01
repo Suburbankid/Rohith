@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌟 ICFOSS Hardware IoT Intern<br>👩‍💻 Currently diving into the world of embedded projects at ICFOSS! <br>🔧 Passionate about developing innovative IoT solutions that make everyday life smarter. <br>🚀 Excited to learn and contribute to cutting-edge technology in the hardware space! <br>📫 Feel free to connect and collaborate on exciting projects! 
+🌟 ICFOSS Hardware IoT Intern<br>👩‍💻 Currently diving into the world of embedded projects at ICFOSS! <br>🔧 Passionate about developing innovative IoT solutions that make everyday life smarter. <br>🚀 Excited to learn and contribute to cutting-edge technology in the hardware space! <br>📫 Feel free to connect and collaborate on exciting projects! <br> reach me at :rohithsasikumar10@gmail.com
 
 
 ## 🌐 Socials:
